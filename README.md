@@ -1,2 +1,2 @@
 My first read me
-Joyful journey
+take it easy
